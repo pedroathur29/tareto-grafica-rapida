@@ -1,0 +1,1 @@
+# tareto-grafica-rapida
